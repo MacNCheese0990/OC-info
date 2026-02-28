@@ -47,3 +47,22 @@ Some explanation about my OCs in Pony Town.
   **4. Role:** A father and general
   
 </details>
+
+---
+
+<details>
+  <summary>Ruth</summary>
+
+  **1. Full name:** Raphael Velveto
+  
+  **Old name:** Raphael Everett
+
+  **Nickname:** Ruth, Raphael, Raph, The Ghost
+
+  **2. Fandom:** Creepypasta
+  
+  **3. Appearance:** Blue eyes, brunette, short razor hairstyle, blunt/side bang (depends), androgynous mainly
+
+  **4. Role:** Proxy, ex-CSI agent (Crime Scene Investigator)
+  
+</details>
