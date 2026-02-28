@@ -27,9 +27,9 @@ Some explanation about my OCs in Pony Town.
   
   **2. Gender:** Male
   
-  *3. Appearance:* Tanned olive skin tone, green eyes, shoulder-lenght brown hair (usually tied in ponytail) with side bang
+  **3. Appearance:** Tanned olive skin tone, green eyes, shoulder-lenght brown hair (usually tied in ponytail) with side bang
   
-  *4. Role:* A mere survey corps member
+  **4. Role:** A mere survey corps member
   
 </details>
 
@@ -37,8 +37,13 @@ Some explanation about my OCs in Pony Town.
 
 <details>
   <summary>Matthew</summary>
-  *1. Full name:* Matthew Olsen Thorntorn
-  *2. Fandom:* Self AU of mine and @VarenIzCool consisting of ww2 based fiction
-  *3. Appearance:* Pure black soldier tactical uniform...
-  *4. Role:* A father and general
+  
+  **1. Full name:** Matthew Olsen Thorntorn
+  
+  **2. Fandom:** Self AU of mine and @VarenIzCool consisting of ww2 based fiction
+  
+  **3. Appearance:** Pure black soldier tactical uniform...
+  
+  **4. Role:** A father and general
+  
 </details>
