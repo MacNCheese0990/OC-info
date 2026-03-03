@@ -1,4 +1,4 @@
-# Creepypasta OC
+# Creepypasta OC (Created on 3.3.2026, Tuesday)
 
 ## General Information
 
@@ -27,7 +27,7 @@ His attire consists of a dark cloak that in occasion, does impede his very own m
 ---
 
 ## Personality
-Despite his alignment, Ruth frequently presents himself as lighthearted and conversational, though tends to act childish and goofy. This behaviour hwoever, appearsto be intentional rather than impulsive in order to disarm a person's vigilant.
+Despite his alignment, Ruth frequently presents himself as lighthearted and conversational, though tends to act childish and goofy. This behaviour however, appears to be intentional rather than impulsive in order to disarm a person's vigilant pr lower their guard.
 
 On top of that, his humour would go as far as being absurd and makes absolute no sense, . Whether it is funny or not, usually depends on how he acts around.
 
