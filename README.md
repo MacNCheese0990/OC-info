@@ -15,7 +15,7 @@
 
 **Alignment:** Chaotic Evil  
 
-**Affiliation(s):** Slenderman [proxy].
+**Affiliation:** Slenderman [proxy].
 
 ---
 
