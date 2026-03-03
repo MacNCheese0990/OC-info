@@ -10,9 +10,11 @@
 **Affiliation(s):** Slenderman [proxy].
 
 <details>
+  
   <summary>Extra note.<summary>
 
   While being one of Slenderman's proxy, he mayhaps is one of the "useless" one due to exaggerated methods of stalking and murder, he is regarded as ineffective and frequently overlooked.
+  
   </details>
   
 ---
