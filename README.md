@@ -1,12 +1,20 @@
 # Creepypasta OC
 
 ## General Information
+
+
 **Full Name:** R██████ V██████
+
 **Alias(es):** Ruth , The Ghost 
+
 **Gender:** Male [Naturally ██████]  
+
 **Pronouns:** He/They  
+
 **Status:** Active  
+
 **Alignment:** Chaotic Evil  
+
 **Affiliation(s):** Slenderman [proxy].
 
 ---
@@ -38,8 +46,12 @@ Ruth typically observes targets before initiating direct contact. He prefers con
 ---
 
 ## Roleplay Information 
+
+
 **Interaction:** W2I for heavy plots (I'd be more than happy to do so!!)
+
 **Consent:** IC ≠ OOC
+
 **Restrictions/Boundaries:** No godmodding or forcing outcomes
 
 ---
