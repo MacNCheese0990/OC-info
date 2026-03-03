@@ -1,68 +1,56 @@
-# OC-info
-Some explanation about my OCs in Pony Town.
+# Creepypasta OC
 
----
+## General Information
+**Full Name:** R██████ V██████
+**Alias(es):** Ruth , The Ghost 
+**Gender:** Male [Naturally ██████]  
+**Pronouns:** He/They  
+**Status:** Active  
+**Alignment:** Chaotic Evil  
+**Affiliation(s):** Slenderman [proxy].
 
 <details>
-  <summary>Dr Nathan S.</summary>
-  
-  **1. Full name:** [REDACTED] Nathan Scarborough
-  
-  **2. Fandom:** SCP
-  
-  **3. Appearance:** Tanned olive skin tone, green eye, unknown full physical facial, shoulder-lenght brown hair tied in ponytail with side bang
-  
-  **4. Role:** A level 2 reseacher
-  
-  **5. More information here (Warning! This is merely an oc and none of the information stated in the link were canon from the SCP wiki itself):** https://docs.google.com/document/d/10b7EJOx6RsjQaMxUw43iqoCEWKiqOnay615Mq7RcJaI/edit?usp=sharing
-  
+  <summary>Extra note.<summary>
+
+  While being one of Slenderman's proxy, he mayhaps is one of the "useless" one due to exaggerated methods of stalking and murder, he is regarded as ineffective and frequently overlooked.
+
 </details>
 
 ---
 
-<details>
-  <summary>Dmitry Thorntorn</summary>
-  
-  **1. Fandom:** Attack on Titan
-  
-  **2. Gender:** Male
-  
-  **3. Appearance:** Tanned olive skin tone, green eyes, shoulder-lenght brown hair (usually tied in ponytail) with side bang
-  
-  **4. Role:** A mere survey corps member
-  
-</details>
+## Physical Description
+Ruth is a man of average height and lean build. He wears a mache paper mask resembling a Ghost Face mask although none-perfect upclose.
+
+His attire consists of a dark cloak that in occasion, does impede his very own movement. He carries a blade around on his waist's belt, whether it's functional or merely a "prop" decoration, depends on the circumstance.
 
 ---
 
-<details>
-  <summary>Matthew</summary>
-  
-  **1. Full name:** Matthew Olsen Thorntorn
-  
-  **2. Fandom:** Self AU of mine and @VarenIzCool consisting of ww2 based fiction
-  
-  **3. Appearance:** Pure black soldier tactical uniform...
-  
-  **4. Role:** A father and general
-  
-</details>
+## Personality
+Despite his alignment, Ruth frequently presents himself as lighthearted and conversational, though tends to act childish and goofy. This behaviour hwoever, appearsto be intentional rather than impulsive in order to disarm a person's vigilant.
+
+On top of that, his humour would go as far as being absurd and makes absolute no sense, . Whether it is funny or not, usually depends on how he acts around.
 
 ---
 
-<details>
-  <summary>Ruth</summary>
+## Abilities
+- Skilled in manipulation and psychological intimidation
+- Capable of prolonged stalking without detection
+- Messing with evidence to confuse CSI or police
 
-  **1. Full name:** Raphael Velveto
-  
-  **Old name:** Raphael Everett
+---
 
-  **Nickname:** Ruth, Raphael, Raph, The Ghost
+## Modus Operandi
+Ruth typically observes targets before initiating direct contact. He prefers conversation as an entry point, often asking what it seems like harmless questions. Preferably studies his victim's daily routines, inconsistency and reactions.
 
-  **2. Fandom:** Creepypasta
-  
-  **3. Appearance:** Blue eyes, brunette, short razor hairstyle, blunt/side bang (depends), androgynous mainly
+---
 
-  **4. Role:** Proxy, ex-CSI agent (Crime Scene Investigator)
-  
-</details>
+## Roleplay Information 
+**Interaction:** W2I for heavy plots (I'd be more than happy to do so!!)
+**Consent:** IC ≠ OOC
+**Restrictions/Boundaries:** No godmodding or forcing outcomes
+
+---
+
+## Trivia 
+- Tend to live in his victim's house, be it in the attic, basement nor closets (eat their food and watch their TV when they're not home)
+- Rarely removes his mask unless genuinely alone or forced by Slenderman/other proxies
