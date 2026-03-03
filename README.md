@@ -9,14 +9,6 @@
 **Alignment:** Chaotic Evil  
 **Affiliation(s):** Slenderman [proxy].
 
-<details>
-  
-  <summary>Extra note.<summary>
-
-  While being one of Slenderman's proxy, he mayhaps is one of the "useless" one due to exaggerated methods of stalking and murder, he is regarded as ineffective and frequently overlooked.
-  
-</details>
-  
 ---
 
 ## Physical Description
@@ -55,3 +47,4 @@ Ruth typically observes targets before initiating direct contact. He prefers con
 ## Trivia 
 - Tend to live in his victim's house, be it in the attic, basement nor closets (eat their food and watch their TV when they're not home)
 - Rarely removes his mask unless genuinely alone or forced by Slenderman/other proxies
+- While being one of Slenderman's proxy, he mayhaps is one of the "useless" one due to exaggerated methods of stalking and murder, he is regarded as ineffective and frequently overlooked.
